@@ -13,4 +13,8 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
--->
+--> 
+@nestor.mateus@escola.pr.gov.br
+sou estudante:Nestor
+gosto de: jogar xadrez.
+:
